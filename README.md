@@ -1,5 +1,5 @@
-## HAlo Semua!!! 👋
-salam kenal, nama saya Ramona**.<br>
+## Sedang belajar
+**.<br>
 
 
 ###GitHub Statistic
