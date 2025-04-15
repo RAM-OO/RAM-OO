@@ -1,6 +1,5 @@
 ## HAlo Semua!!! 👋
 salam kenal, nama saya Ramona**.<br>
-Saya seorang mahasiswi .............
 
 
 ###GitHub Statistic
